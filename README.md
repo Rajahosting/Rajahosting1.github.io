@@ -1,2 +1,2 @@
-# Rajahosting1.github.io
+# Rajahosting.github.io
 Ayo Belajar
